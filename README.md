@@ -1,1 +1,0 @@
-# bedok1.siliconwat.dev
